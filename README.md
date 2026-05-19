@@ -1,4 +1,4 @@
 
-# Olá, 🔎
+# Olá, 👾
 
-Me chamo Jonathan e tenho 18 anos. 
+Me chamo Jonathan, faço BTI na UFERSA e tenho 19 anos. 
